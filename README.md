@@ -10,4 +10,4 @@ Turned out that there's a English version (cover below)
 
 It's called **In Case of Crisis: Taiwan's National Public Safety Guide**
 
-<img src="./unnamed.webp" alt="drawing" width="200"/>
+<img src="./afewfefaeg.png" alt="drawing" width="200"/>
